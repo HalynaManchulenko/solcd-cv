@@ -15,7 +15,7 @@
 |* highly organized and detail-oriented | *	English level – Intermediate +|
 |* fast learner and quickly adapting to new conditions | * Familiar with Use Case Testing technique|
 |* analytical skills | *	I’m acquainted with Scrum and Kanban concepts|
-|* sociable and friendly | |
+|* sociable and friendly | * RDBMS (SQL Server/SQL/TSQL, MS SQL|
 |* negotiation and conflict resolution skills | |
 
 ### **Experience**
