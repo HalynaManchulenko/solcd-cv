@@ -6,7 +6,7 @@
 #### Skype: live:.cid.36c69f03ff4f13a8
 
 ### **Summary of Qualifications**
-#### Ambitious, fast learner person with completed higher education (Master of arts in political science). Sociable, organized and goal-oriented. Currently I am learning on PhD courses. Also I finished Quality Assurance training (OSF Academy). I believe that I will be able to realize myself in the quality assurance sphere, because there are similarities between conducting scientific research and planning testing in general.
+#### Ambitious, fast learner person with completed higher education (Master of arts in political science). Sociable, organized and goal-oriented. Appreciate working in team and finding solutions together. Currently I am learning on PhD courses. Also I finished Quality Assurance training (OSF Academy). I believe that I will be able to realize myself in the quality assurance sphere, because there are similarities between conducting scientific research and planning testing in general.
 
 ### **Skills**
 |*My soft skills:*| *My hard skills:*|
