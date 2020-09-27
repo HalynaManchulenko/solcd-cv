@@ -24,7 +24,7 @@
 #### 3. Call Center operator (probation) in Internet provider “Langate” (2015)
 
 ### **Language**
-#### * Language	English (B1)
+#### * Language	English (B1)....
 
 ### **Education**
 #### * Master degree in “Political science” (Yuriy Fedkovych Chernivtsi National University; graduated in 2015)
